@@ -1,7 +1,9 @@
-# I made some balalalala mods
-But now i play geometry dash                                  
+# I made some balatro mods
+But now **I** _play_ geometry dash                                  
 **GD: Kingcat6820**                                   
-Also this gif has been frying me so here you go
+Have some weird gifs/images
 
 
 <img src="https://tinyurl.com/dancingarctic">
+<img src="https://tinyurl.com/mugainchat">
+<img src="https://tinyurl.com/mugaingdchat">
