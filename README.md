@@ -1,6 +1,6 @@
 # I made some balatro mods
 But now **I** _play_ geometry dash                                  
-**GD: Kingcat6820**                                   
+**GD: KingCat6820**                                   
 Have some weird gifs/images
 
 
